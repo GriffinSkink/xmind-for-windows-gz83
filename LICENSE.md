@@ -1,4 +1,4 @@
-# 
+# instant XMind for Windows Extension | cloud-sync + custom-styles offers the most advanced XMind for Windows extension, with cloud-sync and custom-styles. Ideal for Windows
 
 
 
